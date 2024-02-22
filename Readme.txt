@@ -1,0 +1,2 @@
+本项目下的所有资源都是本人利用空余时间翻译的英文书籍，有需要的可以自取。但任何人不允许以获利方式此转载。如果原书版权拥有者有异议，可联系本人删除。
+All the resources under this project are English books translated by me in my spare time, so if you need them, you can take them yourself. However, no one is allowed to profit from this reproduction. If the copyright holder of the original book has any objection, he/she can contact me to remove it.
